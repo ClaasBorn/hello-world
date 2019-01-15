@@ -1,5 +1,5 @@
 # hello-world
 I like Döner 
-Gaming is my Dünschiss 
+Gaming is life 
 
-Du wertloses Stück Scheiße, geh dich vergraben du kleiner geselschaflich untauglicher kleiner Schmaroza 
+
